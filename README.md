@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Iwox
+- 👋 Hi, I’m Iwox
 - 👀 I’m interested in photography
 
 <!---
